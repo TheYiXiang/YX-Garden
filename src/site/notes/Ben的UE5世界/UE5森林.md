@@ -5,5 +5,6 @@
 
 这是一个测试  
 
-![[002kIs70gy1gvcben4vhuj60d50hrwf802.jpg \| of]]
 
+
+![描述](https://i.loli.net/2021/04/07/QgHvB7hlJyCnN8s.jpg)
